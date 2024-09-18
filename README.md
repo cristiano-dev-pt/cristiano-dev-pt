@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Cristiano, also known as 12cris or here cristiano-dev-pt.
+- 👀 I’m interested in Tech, History and Phones (tech, lol.)
+- 🌱 I’m currently learning to use this, idfk...
+- 📫 Socials . X: @BonelabsFord Tiktok: @cris.onvr
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: OTTO'S MARKENSPEZIAL 2019 on youtube is a very funny swiss advertisment..
+- Anyways thamks for looking into my README.md (who tf does lmaoo)
