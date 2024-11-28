@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Cristiano, also known as 12cris or here cristiano-dev-pt.
+- 👋 Hi, I’m Cristiano, also known as 12cris or here portucode-pt.
 - 👀 I’m interested in Tech, History and Phones (tech, lol.)
 - 🌱 I’m currently learning to use this, idfk...
 - 📫 Socials . X: @BonelabsFord Tiktok: @cris.onvr
